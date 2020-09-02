@@ -17,3 +17,4 @@ Astronomers think that there are at least several billion galaxies in the Univer
 1. There are more stars in the universe than grains of sand on all the beaches on Earth. That’s at least a billion trillion!
 2. The universe has no centre and is constantly expanding (getting bigger) every second – making it impossible to reach the edge.
 3. A black hole is created when big stars explode. Its gravitational force is so strong that nothing can escape from it – luckily the closest black hole is about 10,000 light-years from Earth.
+
