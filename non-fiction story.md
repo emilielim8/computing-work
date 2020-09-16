@@ -10,7 +10,7 @@ Nobody really knows how big the Universe is because we cannot see to the edge of
 
 ### _How many galaxies are there in the Universe?_
 
-Astronomers think that there are at least several billion galaxies in the Universe. The exact number is not known. 
+Astronomers think that there are at least several billion galaxies in the Universe. The exact number is not known. A galaxy is a system of millions or billions of stars, together with gas and dust, held together by gravitational attraction. We live in a galaxy called the Milky Way.
 
 ### _Did you know?_
 
